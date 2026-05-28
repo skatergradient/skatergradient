@@ -1,6 +1,6 @@
 
 <p align="center">
-art used by cherubim-grimm on tumblr
+art used by <a href="https://cherubim-grimm.tumblr.com/">cherubim-grimm</a> on tumblr
                       <p align="center">
                  <img width="500" src="https://file.garden/Z2azQBUlakNoNbak/IMG_4753.png" alt=!>
 <p align="center">
